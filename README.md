@@ -1,1 +1,1 @@
-# Eye-See-You-Reverse-Pass-Through-VR-with-Full-Head-Avatars-IJCAI---2025-
+# Eye-See-You-Reverse-Pass-Through-VR-with-Full-Head-Avatars-IJCAI 2025
